@@ -17,4 +17,4 @@ I like to solve interesting problems :D !
 - Learn DevOps
 
 ## 🐶 Lets Connect
-I'm excited to connect with others via [Email](mailto:1rn21is036.chandansm@gmail.com) to chat about projects, I am open to hearing about potential opportunities, discussing them with you and then potentially collaborating if it's a good fit.
+I'm excited to connect with others via [Email](mailto:1rn21is036.chandansm@gmail.com) to chat about projects, I am open to hearing about potential opportunities, discussing them with you and then potentially collaborating if it's a good fit. Also y'all can check out my alt (@360smchandan).
